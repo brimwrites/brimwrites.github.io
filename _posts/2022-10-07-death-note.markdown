@@ -76,9 +76,10 @@ Wow, I really am an idiot. Why didn't I just wish for more Pokemon cards?
 
 Diary, how do I get Haley back?
 
-> Showing notes from the end of iteration 118...
+> Showing notes from the end of iteration 137...
 
 ---
 &nbsp;  
+*writer's note:* This was inspired in part--conceptually cribbed really--from \[[Dear Spellbook](https://www.royalroad.com/fiction/49881/dear-spellbook-rewrite)\] on Royal Road.
 
 Origin: \[[reddit/r/writingprompts](https://www.reddit.com/r/WritingPrompts/comments/xx4fhn/wp_three_wishes_you_know_the_rules_lets_get_this/)\]
